@@ -1,7 +1,7 @@
  ***
 <h1 align="center">   
   
-[Patreon](https://www.patreon.com/riddlemorgue) (info)
+[Patreon](https://www.patreon.com/riddlemorgue/about) (info)
 
 [Atabook](https://riddlemorgue.atabook.org/) (sign!)
 
