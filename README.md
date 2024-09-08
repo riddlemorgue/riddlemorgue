@@ -1,11 +1,11 @@
  ***
 <h1 align="center">   
   
-[Patreon](https://www.patreon.com/riddlemorgue/about) (info)
+[Patreon](https://www.patreon.com/riddlemorgue/about)
 
-[Atabook](https://riddlemorgue.atabook.org/) (sign!)
+[Atabook](https://riddlemorgue.atabook.org/) (sign please!)
 
-[Strawpage](https://the-medic-tf2.straw.page) (send)
+[Strawpage](https://the-medic-tf2.straw.page) (send me stuff)
 </h1>
 
 ***
