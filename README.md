@@ -5,7 +5,7 @@
 
 [Atabook](https://riddlemorgue.atabook.org/) (sign please!)
 
-[Strawpage](https://the-medic-tf2.straw.page) (send me stuff)
+[Strawpage](https://hal-emmerich.straw.page/) (send me stuff)
 </h1>
 
 ***
