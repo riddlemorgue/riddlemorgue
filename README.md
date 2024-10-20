@@ -4,7 +4,7 @@
 ![hehe hal](https://64.media.tumblr.com/0f964872dd86a1bf469c5c39a6293b3d/7e11596e8fea4587-36/s100x200/af471d2fafeb82e190a8a1d2d797411ddbd4065e.pnj)   
 [Patreon](https://www.patreon.com/riddlemorgue/about)
 
-[Atabook](https://riddlemorgue.atabook.org/) 
+[Atabook](https://therlddler.atabook.org/) 
 
 [Strawpage](https://hal-emmerich.straw.page/) 
 </h1>
