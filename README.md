@@ -9,7 +9,7 @@
 
 [Strawpage 1](https://hal-emmerich.straw.page/) 
 
-[Strawpage 2](https://every-man-hybrid.straw.page)
+[Strawpage 2](https://gideon-graves.straw.page)
 </h1>
 
 ***
