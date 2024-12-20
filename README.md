@@ -3,8 +3,6 @@
   
 ![reuniclus](https://static.wikia.nocookie.net/vees-total-pokemon/images/a/a2/3ani_579_xy.gif/revision/latest?cb=20201016204433)
 
-[Patreon](https://www.patreon.com/riddlemorgue/about)
-
 [Atabook](https://therlddler.atabook.org/) 
 
 [Strawpage 1](https://hal-emmerich.straw.page/) 
