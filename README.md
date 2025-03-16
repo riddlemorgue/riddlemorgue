@@ -4,7 +4,7 @@
   <a href="https://tamanotchi.world/20126c"><img src="https://tamanotchi.world/includes/scripts/img2.php?id=20126" alt=""></a> 
 
 
-[Atabook](https://therlddler.atabook.org/) 
+[Atabook](https://mickey17.atabook.org/) 
 
 [Strawpage ](https://peter-strahm.straw.page) 
 
