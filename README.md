@@ -6,9 +6,8 @@
 
 [Atabook](https://mickey17.atabook.org/) 
 
-[Strawpage ](https://fellowtravelers.straw.page) 
+[Strawpage ](https://superbats.straw.page) 
 
-[Strawpage 2](https://jack-twist.straw.page)
 </h1>
 
 ***
