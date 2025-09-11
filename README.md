@@ -3,6 +3,7 @@
   
   <a href="https://tamanotchi.world/20126c"><img src="https://tamanotchi.world/includes/scripts/img2.php?id=20126" alt=""></a> 
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=r50csngzxujl9htcjebn1g5wy&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)  
 
 [Atabook](https://mickey17.atabook.org/) 
 
