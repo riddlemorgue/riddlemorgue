@@ -12,9 +12,12 @@
 ***
 <p align="center">
   edward + many other names lalala
-empathy warrior with The Illnesses
 
-  I love darker media and media that takes on heavier topics but I will not interact with those who glorify/romanticize/get off on those things! This is for my own safety. Please do not take offense :-)
+  empathy warrior with The illnesses
+
+I'm usually open to interaction and like making friends :-)
+
+  I love darker media and media that takes on heavier topics but I will not interact with those who glorify/romanticize/get off on those things! This is for my own safety. Please do not take offense. thumbs up
 <img width="500" alt="gay" src="https://64.media.tumblr.com/c7f03399aca84607254533eea0aef374/72585813b63f7be6-a8/s1280x1920/9c907f660b94e70ee86c2dea0cd2716ba1a0fb5c.pnj">
 <p> 
 
