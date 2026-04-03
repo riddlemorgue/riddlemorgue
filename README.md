@@ -1,9 +1,5 @@
  ***
 <h1 align="center">   
-  
- 
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=r50csngzxujl9htcjebn1g5wy&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)  
 
 [Strawpage ](https://creeptape.straw.page) 
 
@@ -17,7 +13,8 @@
 
 I'm usually open to interaction and like making friends :-)
 
-  I love darker media and media that takes on heavier topics but I will not interact with those who glorify/romanticize/get off on those things! This is for my own safety. Please do not take offense. thumbs up
+  I love darker media and media that takes on heavier topics but I will not interact with those who glorify/romanticize/get off on things like rape, incest or pedophilia (even in fiction.) This is for my own safety. Please do not take offense. thumbs up
+  
 <img width="500" alt="gay" src="https://64.media.tumblr.com/c7f03399aca84607254533eea0aef374/72585813b63f7be6-a8/s1280x1920/9c907f660b94e70ee86c2dea0cd2716ba1a0fb5c.pnj">
 <p> 
 
