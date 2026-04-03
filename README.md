@@ -7,6 +7,8 @@
 
 [Strawpage ](https://creeptape.straw.page) 
 
+I love darker media and media that takes on heavier topics but I will not interact with those who glorify/romanticize/get off on those things! This is for my own safety. Please do not take offense :-)
+
 </h1>
 
 ***
