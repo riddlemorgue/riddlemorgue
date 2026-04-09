@@ -11,7 +11,7 @@
 
   empathy warrior with The illnesses
 
-I'm usually open to interaction and like making friends :-)
+I'm usually open to interaction and like making friends :-) I'm very shy though and appreciate when you interact first!
 
   I love darker media and media that takes on heavier topics but I will not interact with those who get off on things like rape, incest or pedophilia (even in fiction.) This is for my own safety. Please do not take offense. thumbs up. If I don't like you I most likely will just stop talking to you idk it's pretty simple 
   
