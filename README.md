@@ -11,11 +11,16 @@
 
   empathy warrior with The illnesses
 
-I'm usually open to interaction and like making friends :-) I'm very shy though and appreciate when you interact first! If I decline your friend request do not get pissy lol
+I'm usually open to interaction and like making friends :-) I'm very shy though and appreciate when you interact first! If we have similar interests don't be afraid to say hi! I am very kind and understanding.
 
-  I love darker media and media that takes on heavier topics but I will not interact with those who get off on things like rape, incest or pedophilia in fiction. This is for my own safety. Please do not take offense. thumbs up. If I don't like you I most likely will just stop talking to you idk it's pretty simple 
+I get very anxious from social interaction easily (even online) so I may end our conversation abruptly but politely. Please don't take offense!
 
-I'm a loser with no life so i like playing ponytown often #jobless im working up to becoming a mortician or coroner though if you're interested.
+I am usually sitting with my bf Dan <3
+
+  I love darker media and media that takes on heavier topics but I will not interact with or friend those who get off on things like rape, incest or pedophilia in fiction. This is for my own safety. Please do not take offense. thumbs up. If I don't like you or I am uncomfortable I most likely will just stop talking to you.
+My boundaries are still important even on a dumb pony game 
+
+I'm a loser with no life so I like playing ponytown often #jobless I'm working up to becoming a mortician or coroner though if you're interested.
   
 <img width="500" alt="gay" src="https://64.media.tumblr.com/c7f03399aca84607254533eea0aef374/72585813b63f7be6-a8/s1280x1920/9c907f660b94e70ee86c2dea0cd2716ba1a0fb5c.pnj">
 <p> 
