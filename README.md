@@ -7,7 +7,11 @@
 
 ***
 <p align="center">
-  edward + many other names lalala
+
+<img width="100" alt="gay" src="https://i.imgur.com/uB8z1X5_d.png?maxwidth=520&shape=thumb&fidelity=high">
+
+<p align="center">    
+   edward + many other names lalala
 
   empathy warrior with The illnesses
 
@@ -21,8 +25,9 @@ I am usually sitting with my bf Dan <3
 
 I'm a loser with no life so I like playing ponytown often #jobless I'm working up to becoming a mortician or forensic pathologist though if you're interested.
   
+
+<p>
 <img width="500" alt="gay" src="https://64.media.tumblr.com/c7f03399aca84607254533eea0aef374/72585813b63f7be6-a8/s1280x1920/9c907f660b94e70ee86c2dea0cd2716ba1a0fb5c.pnj">
-<p> 
 
 <h1 align="center">  
 STAMPS ^_^  
