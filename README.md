@@ -17,8 +17,6 @@
 
 I'm usually open to interaction and like making friends :-) I'm very shy though and appreciate when you interact first! If we have similar interests don't be afraid to say hi! I am very kind and understanding.
 
-I get very anxious from social interaction easily (even online) so I may end our conversation abruptly but politely. Please don't take offense!
-
 I am usually sitting with my bf Dan <3
 
   I love darker media and media that takes on heavier topics!! Unfortunately I will not interact with or friend those who get off on things like loli/shota or rape or incest in fiction. This is for my own safety. Please do not take offense. If I don't like you or I am uncomfortable I most likely will just stop talking to you.
