@@ -21,6 +21,8 @@ I am usually sitting with my bf Dan <3
 
   I love darker media and media that takes on heavier topics!! Unfortunately I will not interact with or friend those who get off on things like loli/shota or rape or incest in fiction. This is for my own safety. Please do not take offense. If I don't like you or I am uncomfortable I most likely will just stop talking to you.
 
+I make kms jokes sometimes and I often say the f slur. If that makes you uncomfortable during conversation please lmk!
+
 I'm a loser with no life so I like playing ponytown often #jobless I'm working up to becoming a mortician or forensic pathologist though if you're interested.
   
 
