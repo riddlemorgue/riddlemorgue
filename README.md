@@ -11,7 +11,7 @@
 <img width="100" alt="gay" src="https://i.imgur.com/uB8z1X5_d.png?maxwidth=520&shape=thumb&fidelity=high">
 
 <p align="center">    
-   edward + many other names lalala
+   you can call me driver or edward
 
   empathy warrior with The illnesses
 
